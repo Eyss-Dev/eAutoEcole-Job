@@ -17,3 +17,5 @@
 - Si il y a le moindre problème avec le script contactez le support discord !
 
 # discord.gg/KwHEFS9eUY
+
+![autoecole](https://user-images.githubusercontent.com/76251650/175649090-bc39a2db-bc69-4e5d-a5a6-8bf6a3f578d1.jpg)
